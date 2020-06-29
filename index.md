@@ -5,3 +5,6 @@ Mein Lieblingscharakter kommt aus der Filmreihe von Marvel da ist besonders Thor
 * Coole Eingeschaften
 * Blitze sind cool
 * Familenendrama kommt mir bekannt vor xD
+> Wer auch immer diesen Hammer hält,
+> wenn er seiner würdig ist,
+> möge die Kraft Thors besitzen
